@@ -4,7 +4,7 @@
 [atabook](https://gwinam.atabook.org/)
 
 
-<p align="center"> <img widgh="732" height="352" alt="image" src="https://files.catbox.moe/2arj1e.jpg" /><p align="center"> 
+<p align="center"> <img widgh="732" height="352" alt="image" src="https://files.catbox.moe/itpzip.jpg" /><p align="center"> 
 
 
 
