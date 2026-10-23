@@ -26,6 +26,4 @@ if you ever see me on pony town and you like cortis . . please dont  be scared t
 
 .      int  :  coers , v.i.ps, gillit n bunnies   ,   people w the same interests as me. etc
 
-<p align="center"> <img widgh="732" height="340" alt="image" src="https://files.catbox.moe/g4hfmc.jpg" /><p align="center"> 
-  
 𓎟𓎟𓎟𓎟✦𓎟𓎟𓎟𓎟
