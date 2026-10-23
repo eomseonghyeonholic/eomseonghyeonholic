@@ -7,5 +7,6 @@
 
 <p align="center"> <img widgh="732" height="352" alt="image" src="https://files.catbox.moe/itpzip.jpg" /><p align="center"> 
 
+if you ever see me on pony town and you like cortis . . please dont  be scared to int i love  cortis  a  lot  ^^  very open w It 
 
 𓎟𓎟𓎟𓎟✦𓎟𓎟𓎟𓎟
