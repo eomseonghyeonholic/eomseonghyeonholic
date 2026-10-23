@@ -4,7 +4,7 @@
 [atabook](https://gwinam.atabook.org/)
 
 
-<p align="center"> <img widgh="732" height="352" alt="image" src="https://files.catbox.moe/itpzip.jpg" /><p align="center"> 
+<p align="center"> <img widgh="732" height="352" alt="image" src="https://files.catbox.moe/2arj1e.jpg" /><p align="center"> 
 
 
 
@@ -19,7 +19,7 @@ if  you ever see me on pony town and you like cortis . . please dont  be scared 
 
 
 
-<p align="center"> <img widgh="732" height="340" alt="image" src="https://files.catbox.moe/36gy48.jpg" /><p align="center"> 
+<p align="center"> <img widgh="732" height="340" alt="image" src="https://files.catbox.moe/itpzip.jpg" /><p align="center"> 
 
 
  ⨳  󠀠󠀠󠀠󠀠󠀠   .      𝘿𝙣i  :  marhoon heavily , keonhyeon, some eyekons, blinks heavily    toxic coers, cortis rpfyumes, mean people. tcc dni im Extremely uncomfortable w that
