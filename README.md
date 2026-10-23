@@ -22,8 +22,8 @@ if  you ever see me on pony town and you like cortis . . please dont  be scared 
 <p align="center"> <img widgh="732" height="340" alt="image" src="https://files.catbox.moe/36gy48.jpg" /><p align="center"> 
 
 
- .   󠀠󠀠󠀠󠀠󠀠         dni  :  marhoon heavily , keonhyeon, some eyekons, blinks heavily    toxic coers, cortis rpfyumes, mean people. tcc dni im Extremely uncomfortable w that
+ ⨳  󠀠󠀠󠀠󠀠󠀠   .      𝘿𝙣i  :  marhoon heavily , keonhyeon, some eyekons, blinks heavily    toxic coers, cortis rpfyumes, mean people. tcc dni im Extremely uncomfortable w that
 
-.            󠀠󠀠 int  :  coers , v.i.ps, gillit n bunnies   ,   people w the same interests as me. 󠀠etc󠀠
+⨳       .     󠀠󠀠 𝙞𝙣t  :  coers , v.i.ps, gillit n bunnies   ,   people w the same interests as me. 󠀠etc󠀠
 
 𓎟𓎟𓎟𓎟✦𓎟𓎟𓎟𓎟
