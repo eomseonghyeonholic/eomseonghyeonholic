@@ -30,6 +30,4 @@ if  you ever see me on pony town and you like cortis . . please dont  be scared 
 ໒꒱ —    　 marhoon heavy DNI  ㅤᡣ𐭩 　 
 
 
-⨳       .     󠀠󠀠 𝙞𝙣t  :  coers , v.i.ps, gillit n bunnies   ,   people w the same interests as me. 󠀠etc󠀠
 
-𓎟𓎟𓎟𓎟✦𓎟𓎟𓎟𓎟
