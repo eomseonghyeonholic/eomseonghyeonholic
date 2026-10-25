@@ -31,4 +31,4 @@ if  you ever see me on pony town and you like cortis . . please dont  be scared 
 ໒꒱ —    　 marhoon heavy DNI  ㅤᡣ𐭩 　 
            ‿‿
 Int 
-　nice coers  　　┆︎   same interest
+　nice coers  　　┆︎     same interest
