@@ -32,4 +32,4 @@ if you see me on pt and you like cortis dont be scared to interact .
 Int 
 　nice coers  　　┆︎     same interest
  
-  ◞◟　  𓎟𓎟　  ✦　　𓎟𓎟　　◞◟
+  ◞◟　    𓎟𓎟　   ✦　  　𓎟𓎟　　 ◞◟
