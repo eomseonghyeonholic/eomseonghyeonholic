@@ -6,11 +6,11 @@
 
 <p align="center"> <img widgh="640" height="480" alt="juhoon banner" src="https://files.catbox.moe/u47pd3.jpg" /><p align="center"> 
 
- ݁   ︶ ◟ ͜◞ 🌡️  ◟ ͜◞ .︶ 
+      ݁   ︶ ◟ ͜◞ 🌡️  ◟ ͜◞ .︶ 
 
 if you see me on pt and you like cortis dont be scared to interact .
--     𐔌꒰ㅤ՟  #cortis  ﹔ #healing .
-⠀sign ata pls    ﹙カ﹚   ૮꒰ •̯́ ༝ •̯̀˵꒱ა 
+.     𐔌꒰ㅤ՟  #cortis  ﹔ #healing .
+⠀sign ata pls  ‿‿   ૮꒰ •̯́ ༝ •̯̀˵꒱ა 
 
 
 [airbuds](https://i.airbuds.fm/xxmartin.edwards/Q5wgNjxZA9)
