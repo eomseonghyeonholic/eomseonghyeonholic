@@ -47,4 +47,4 @@ Int
 
    .     also i like aespa , txt , bigbang , 2ne1 and more ask me
 
- ⠀ׁ⠀ꔛ  𝘽ias  :  ningning , winter , seonghyeon  cortis ot5 , taeyang and gdragon , wooyoung, haerin , hanni , louis , woojin , soobin , yeonjun , sunoo , sunghoon , minzy , chuu , yeojin , eunche  and   more.
+ ⠀ׁ⠀ꔛ  𝘽ias  :  ningning , winter , seonghyeon  cortis ot5 , taeyang and gdragon , wooyoung, haerin , hanni , louis , woojin   and   more.
