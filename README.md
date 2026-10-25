@@ -39,7 +39,8 @@ Int
 
 <p align="center"> <img widgh="640" height="480" alt="keonho banner" src="https://files.catbox.moe/84mvvv.jpg" /><p align="center"> 
 
-𝗜'𝗠 𝗟𝗜𝗞𝗘 𝗦✶𝗠𝗘 𝗞𝗜𝗡𝗗 𝐎𝗙 𝗦𝗨𝗣𝗘𝗥𝗡꩜𝗩𝗔  .ᐟ
+𝗜'𝗠 𝗟𝗜𝗞𝗘 𝗦✶𝗠𝗘 𝗞𝗜𝗡𝗗 𝐎𝗙 𝗦𝗨𝗣𝗘𝗥𝗡꩜𝗩𝗔 
+
 ⏝⏝⏝ ⠀ ݁ ⠀꒡ ͝ ˖
 
  coer , bunnie , shottie , gillit ult
