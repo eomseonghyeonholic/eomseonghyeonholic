@@ -1,3 +1,4 @@
+![Profile Views](https://komarev.com/ghpvc/?username=eomseonghyeonholic)
 
 [strawpage](https://xxeomsean.straw.page)
 
