@@ -1,4 +1,4 @@
-![(&color=9fc2bf)Profile Views](https://komarev.com/ghpvc/?username=eomseonghyeonholic)
+ ![Profile Views](https://komarev.com/ghpvc/?username=eomseonghyeonholic)
 
 [strawpage](https://xxeomsean.straw.page)
 
