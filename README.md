@@ -4,7 +4,7 @@
 [atabook](https://gwinam.atabook.org/)
 
 
-<p align="center"> <img widgh="640" height="480" alt="image" src="https://files.catbox.moe/u47pd3.jpg" /><p align="center"> 
+<p align="center"> <img widgh="640" height="480" alt="juhoon banner" src="https://files.catbox.moe/u47pd3.jpg" /><p align="center"> 
 
 
 sign ata pls
