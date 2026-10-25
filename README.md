@@ -9,7 +9,7 @@
 
 if you see me on pt and you like cortis dont be scared to interact .
 
--     𐔌꒰ㅤ՟  #cortis  ﹔ #healing .
+ 𐔌꒰ㅤ՟  #cortis  ﹔ #healing .
 
 ⠀sign ata pls       ૮꒰ •̯́ ༝ •̯̀˵꒱ა 
 
