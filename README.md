@@ -22,7 +22,8 @@ if  you ever see me on pony town and you like cortis . . please dont  be scared 
 <p align="center"> <img widgh="750" height="340" alt="CORTIS" src="https://files.catbox.moe/ovtok7.jpg" /><p align="center"> 
 
 
-✚◞ㅤㅤ ㅤ ⏝‿‿◟🐾◞‿‿⏝     int   .ᐟ       i love cortis  !
+✚◞ㅤㅤ ㅤ ⏝‿‿◟🐾◞‿‿⏝       .
+        i love cortis  !
 
 ㅤㅤㅤㅤㅤㅤㅤ◜ ͡ ◝ ◜🦴◝ ◜ ͡ ◝ ㅤ
 
