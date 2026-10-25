@@ -35,4 +35,5 @@ Int
  
   ◞◟　    𓎟𓎟　   ✦　  　𓎟𓎟　　 ◞◟
 
-![Currently listening to](https://vercel.app)
+[![Spotify](https://vercel.app)](https://open.spotify.com/user/31cmnrigwgovhkpmlpzcgsalzo3q?si=Tca61F3bTwShOqnsFfZo0w&utm_source=copy-link)
+
