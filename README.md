@@ -7,11 +7,13 @@
 <p align="center"> <img widgh="640" height="480" alt="juhoon banner" src="https://files.catbox.moe/u47pd3.jpg" /><p align="center"> 
 
 
-sign ata pls
-
-
-
-if  you ever see me on pony town and you like cortis . . please dont  be scared to int i love  cortis  a  lot  ^^  very open w It 
+ ݁   ︶ ◟ ͜◞ 🌡️  ◟ ͜◞ .︶  ݁
+𑣲🫀꒱  if you see me on pt and you like cortis dont be scared to interact .ᐟ
+ -     𐔌꒰ㅤ՟  #cortis  ﹔ #healing .
+.
+.                    ⢏⢢⣀⡔⡹
+.
+🔖⠀⠀sign ata pls    ﹙カ﹚   ૮꒰ •̯́ ༝ •̯̀˵꒱ა  
 
 
 
