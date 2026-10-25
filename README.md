@@ -35,4 +35,3 @@ Int
  
   ◞◟　    𓎟𓎟　   ✦　  　𓎟𓎟　　 ◞◟
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31cmnrigwgovhkpmlpzcgsalzo3q&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=8dccb2)](https://github.com/kittinan/spotify-github-profile)
