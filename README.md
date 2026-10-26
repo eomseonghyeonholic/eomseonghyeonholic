@@ -15,6 +15,7 @@ if you see me on pt and you like cortis dont be scared to interact .
 
    ⠀sign ata pls       ૮꒰ •̯́ ༝ •̯̀˵꒱ა 
 
+STREAM BREAK EVEN ILLIT
 
 [airbuds](https://i.airbuds.fm/xxmartin.edwards/Q5wgNjxZA9)
 
