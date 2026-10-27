@@ -9,7 +9,7 @@
 <p align="center"> <img widgh="640" height="480" alt="keonho" src="https://files.catbox.moe/1nnnmw.jpg" /><p align="center"> 
     ݁   ︶ ◟ ͜◞ 🪽  ◟ ͜◞ .︶ 
 
-if you see me on pt and you like cortis dont be scared to interact .
+if you see me on pt and you like cortis dont be scared to interact . c+h anytime !! i dont mind
 
  𐔌꒰ㅤ՟  #cortis  ﹔ #healing .
 
